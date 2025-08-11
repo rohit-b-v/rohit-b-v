@@ -23,7 +23,7 @@ Check out my pinned repos below 👇
 
 ## 📫 Get in Touch
 - 📧 Email: rohitbv.vips@gmail.com 
-- 💼 [LinkedIn]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/rohitbv2012/))
+- 💼 [LinkedIn](https://www.linkedin.com/in/rohitbv2012/)
 
 
 
